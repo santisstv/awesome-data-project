@@ -36,3 +36,8 @@ another update test........
 OK sweet looks like it's working.... here is offically exercies 8. 
 
 NEW IMAGINATIVE IDEA IDEA IDEA PLEASE WORK PLEASE
+
+
+
+
+new thing to push rn i guess lol?
